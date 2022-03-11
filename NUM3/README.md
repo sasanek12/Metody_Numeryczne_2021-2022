@@ -4,6 +4,7 @@
 
 ## **Polecenie**
 
+![polecenie_num3](https://user-images.githubusercontent.com/33027221/157859554-0baedbcf-22eb-43a4-9d8b-1e417d7e5bf2.png)
 
 ----------
 <br>
